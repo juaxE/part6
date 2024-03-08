@@ -1,1 +1,1 @@
-Hours spent this far: 0
+Hours spent this far: 2
